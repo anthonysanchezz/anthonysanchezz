@@ -2,7 +2,7 @@
 
 ⌨️ Backend Dev at Romux Pro Equipment <br>
 🇨🇳 Currently living in Yiwu, China <br>
-📸 Starting my content creation journey [YouTube](https://www.youtube.com/@anthonysanchezzzz)
+📸 Starting my content creation journey 👉 [YouTube](https://www.youtube.com/@anthonysanchezzzz)
 
 
 
