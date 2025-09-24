@@ -1,7 +1,7 @@
 ## Hey, I am Anthony Sanchez 🤓
 
 ⌨️ Backend Dev at Romux Pro Equipment <br>
-🇨🇳 Currently living in Yiwu, China <br>
+🇨🇾 Currently living in Larnaca, Cyprus <br>
 📸 Starting my content creation journey 👉 [YouTube](https://www.youtube.com/@anthonysanchezzzz)
 
 
