@@ -1,8 +1,7 @@
 ## Hey, I am Anthony Sanchez 🤓
 
-⌨️ Backend Dev at Romux Pro Equipment <br>
+⌨️ Full Stack dev and AI automation agent <br>
 🇨🇾 Currently living in Larnaca, Cyprus <br>
-📸 Starting my content creation journey 👉 [YouTube](https://www.youtube.com/@anthonysanchezzzz)
 
 
 
